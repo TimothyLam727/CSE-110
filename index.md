@@ -32,9 +32,9 @@ I don't have an idea of working in which specific area yet after I gradute from 
 ## My personal life
 Apart from my study and programming, I enjoy playing and watching sports a lot. Basketball and soccer are my favorite sports. Guess which basketball and soccer teams are my favorite?
 
-[My fav Basketball Team](tot_son.jpeg)
+[My fav Basketball Team](pic2.jpg)
 
-[My fav Soccer Team](pic2.jpg)
+[My fav Soccer Team](tot_son.jpeg)
 
 
 I also love **gaming**! The following are the games that I play the most:
